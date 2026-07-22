@@ -1,2 +1,0 @@
-# Riskiandika
-Sjnsns
